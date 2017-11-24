@@ -1,1 +1,0 @@
-# GAD405-pixel-ghost
